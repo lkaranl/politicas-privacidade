@@ -42,5 +42,5 @@ Podemos atualizar esta política de privacidade periodicamente. Recomendamos que
 
 ## Contato
 
-Caso tenha dúvidas ou solicitações relacionadas a esta política de privacidade, entre em contato através do e-mail: [seuemail@dominio.com].
+Caso tenha dúvidas ou solicitações relacionadas a esta política de privacidade, entre em contato através do e-mail: [karanluciano1@gmail.com].
 
